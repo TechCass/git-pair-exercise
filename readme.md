@@ -10,3 +10,6 @@ A: That's too hard, I have to many.
 A. be the traveler yes, driving myself no lol
 
 4. What is your favorite type of food?
+A. Italian
+
+5. What was the model of your first car?
