@@ -7,3 +7,6 @@ A: I have 2. Lavender and Rose Gold
 A: That's too hard, I have to many.
 
 3. Do you like to travel?
+A. be the traveler yes, driving myself no lol
+
+4. What is your favorite type of food?
